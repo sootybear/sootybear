@@ -1,1 +1,1 @@
-<p align="center"> <img width"550" height"400" src="https://media.discordapp.net/attachments/1072543576728281110/1383200641198985357/Untitled86_20250613224526.png?ex=684ded7b&is=684c9bfb&hm=d209ff40b4e65fcc8a0c09c57f9e7006ab3364e79cbac749b7e06b6d14e8ae8a&=&format=webp&quality=lossless&width=800&height=400"> </p> 
+<p align="center"> <img width"550" height"400" src="![](https://www.tumblr.com/stimboardboy/766407576707563520/sooty-puppet-with-wand)"> </p> 
